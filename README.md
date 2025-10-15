@@ -2,9 +2,9 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a **[adjective]** October night when Dr. **[last name]** was working late in their **[adjective]** laboratory. They had been studying **[plural noun]** for **[number]** months, hoping to make a **[adjective]** breakthrough.
+It was a **[adjective]** October night when Dr. **[last name]** was working late in their **[adjective]** laboratory. They had been studying **meteorites** for **36** months, hoping to make a **[adjective]** breakthrough.
 
-As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
+As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **old mayo** was **[verb ending in -ing]** three feet above the lab bench! 
 
 "This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
 
