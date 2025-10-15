@@ -2,13 +2,13 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a **noisy** October night when Dr. **Turing** was working late in their **automated** laboratory. They had been studying **robot arms** for **12** months, hoping to make a **groundbreaking** breakthrough.
+It was a noisy October night when Dr. Turing was working late in their automated laboratory. They had been studying robot arms for 12 months, hoping to make a modest breakthrough.
 
 As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
 
 "This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
 
-Suddenly, an **eerie** voice echoed through the lab: "Your research on **quantum slime** has awakened us! We are the spirits of **7** researchers who died from **tripping over lab coats**!"
+Suddenly, a mechanical voice echoed through the lab: "Your research on autonomous machines has awakened us! We are the spirits of 7 researchers who died from being turned into paperclips"
 
 Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious **[color]** residue.
 
