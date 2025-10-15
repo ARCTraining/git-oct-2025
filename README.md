@@ -11,7 +11,7 @@ As they sifted through their research notes, something dastardly caught their ey
 
 Suddenly, a **[adjective]** voice echoed through the lab: "Your research on **[scientific term]** has awakened us! We are the spirits of **[number]** researchers who died from **[silly cause of death]**!"
 
-Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious **[color]** residue.
+Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious blue residue.
 
 *The next morning, their lab mates found only a **[adjective]** note that read: "Gone to study **[spooky subject]** with the ghost researchers. Back by **[day of week]**... maybe."*
 
