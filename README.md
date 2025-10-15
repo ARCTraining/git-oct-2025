@@ -2,9 +2,9 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a noisy October night when Dr. Turing was working late in their automated laboratory. They had been studying robot arms for 12 months, hoping to make a modest breakthrough.
+It was a misty October night when Dr. Spanglebottom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
 
-As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
+As they sifted through their research notes, something dastardly caught their eye. A petri dish containing eyeballs was evaporating three feet above the lab bench! 
 
 "This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
 
