@@ -4,7 +4,6 @@
 
 It was a misty October night when Dr. Spanglebottom was working late in their monster genetic engineering laboratory. They had been studying GFP monster-rabbits for 86 months, hoping to make a glowing breakthrough.
 
-
 As they sifted through their research notes, something dastardly caught their eye. A petri dish containing eyeballs was evaporating three feet above the lab bench! 
 
 "This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
