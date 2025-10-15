@@ -2,7 +2,7 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a **[adjective]** October night when Dr. **[last name]** was working late in their **[adjective]** laboratory. They had been studying **[plural noun]** for **[number]** months, hoping to make a **[adjective]** breakthrough.
+It was a **noisy** October night when Dr. **Turing** was working late in their **automated** laboratory. They had been studying **robot arms** for **12** months, hoping to make a **groundbreaking** breakthrough.
 
 As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
 
