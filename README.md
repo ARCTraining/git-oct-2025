@@ -2,7 +2,7 @@
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a **[adjective]** October night when Dr. **[last name]** was working late in their **[adjective]** laboratory. They had been studying **[plural noun]** for **[number]** months, hoping to make a **[adjective]** breakthrough.
+It was a **[cold]** October night when Dr. **[Dolittle]** was working late in their **[monster]** laboratory. They had been studying **[monsters]** for **[86]** months, hoping to make a **[scary]** breakthrough.
 
 As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
 
