@@ -1,17 +1,20 @@
-# 🎃 The Haunted Lab Mad Libs 🧪
+# 👻👻👻 The Haunted Lab Mad Libs 🧪
 
 **Fill in the blanks and discover what happens when science meets the supernatural!**
 
-It was a **[adjective]** October night when Dr. **[last name]** was working late in their **[adjective]** laboratory. They had been studying **[plural noun]** for **[number]** months, hoping to make a **[adjective]** breakthrough.
+It was a **chilly** October night when Dr. **Blackwell** was working late in their **dimly lit** laboratory. They had been studying **fungal spores** for **7** months, hoping to make a **groundbreaking** breakthrough.
 
-As they **[past tense verb]** through their research notes, something **[adjective]** caught their eye. A petri dish containing **[gross substance]** was **[verb ending in -ing]** three feet above the lab bench! 
+As they **flipped** through their research notes, something **unnerving** caught their eye. A petri dish containing **slimy goo** was **floating** three feet above the lab bench!
 
-"This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
+"This is **impossible**!" they whispered, adjusting their **goggles** nervously. The dish began to **vibrate** in a **spiral** pattern, glowing with a **green** light.
 
-Suddenly, a **[adjective]** voice echoed through the lab: "Your research on **[scientific term]** has awakened us! We are the spirits of **[number]** researchers who died from **[silly cause of death]**!"
+Suddenly, a **raspy** voice echoed through the lab:  
+"Your research on **quantum entanglement** has awakened us! We are the spirits of **12** researchers who died from **tripping over extension cords**!"
 
-Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious **[color]** residue.
+Dr. **Blackwell** grabbed their **micropipette** and **ran** toward the exit, but the ghostly petri dish **overtook** them, leaving behind only the smell of **burnt marshmallows** and a mysterious **purple** residue.
 
-*The next morning, their lab mates found only a **[adjective]** note that read: "Gone to study **[spooky subject]** with the ghost researchers. Back by **[day of week]**... maybe."*
+*The next morning, their lab mates found only a **crumpled** note that read:*  
+*"Gone to study **ectoplasmic microbiology** with the ghost researchers. Back by **Thursday**... maybe."* 👻🧪
+
 
 **🧬 Happy Halloween from the haunted lab! 👻**
