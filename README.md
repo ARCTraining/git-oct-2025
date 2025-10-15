@@ -8,7 +8,7 @@ As they **[past tense verb]** through their research notes, something **[adjecti
 
 "This is **[exclamation]**!" they whispered, adjusting their **[plural noun]** nervously. The dish began to **[verb]** in a **[adjective]** pattern, glowing with a **[color]** light.
 
-Suddenly, a **[adjective]** voice echoed through the lab: "Your research on **[scientific term]** has awakened us! We are the spirits of **[number]** researchers who died from **[silly cause of death]**!"
+Suddenly, an **eerie** voice echoed through the lab: "Your research on **quantum slime** has awakened us! We are the spirits of **7** researchers who died from **tripping over lab coats**!"
 
 Dr. **[same last name]** grabbed their **[lab equipment]** and **[past tense verb]** toward the exit, but the ghostly petri dish **[past tense verb]** them, leaving behind only the smell of **[weird smell]** and a mysterious **[color]** residue.
 
